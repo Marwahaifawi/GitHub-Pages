@@ -1,4 +1,4 @@
-# Welcome to my Blog!
+
 ### Hi there! My name is Marwa Salah, and I'm excited to share my thoughts and ideas with you through this blog. Here are a few things you can expect to find here:
 
 ## Topics
